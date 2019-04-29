@@ -1,4 +1,4 @@
 # COGS108_Repo
-I am your father!!!!!!!! \n
-Nooooooooooooooooooooooooooooo\n
+I am your father!!!!!!!! \
+Nooooooooooooooooooooooooooooo\
 No More Star Wars, 
